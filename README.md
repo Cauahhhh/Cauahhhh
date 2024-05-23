@@ -1,0 +1,5 @@
+- Meu nome é @Cauahhhh
+- Estou aprendendo a usar o GitHub
+- Sei fazer jogos no scratch
+- Já usei o P5. 🌻
+- <img src="https://yt3.googleusercontent.com/wvlCpRqb9Hb9Yuv62LDo-AZxr-MpAHTvpeToBGpNOPSMNGQIyplQh2EZv75SLHOZIkpijT00=s900-c-k-c0x00ffffff-no-rj">
